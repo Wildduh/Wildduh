@@ -1,12 +1,11 @@
 _my name is amitis
 _im 15 yrs old
 -always playing pony town
--you can find me in roblox,ponytown,tikto and others
+-you can find me in roblox,ponytown,tiktok and others
 _you can call me ami or duh
 _im kind to my freinds and play anything w them
 - you can whisper to intract with me
-
-<!---
-Wildduh/Wildduh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+_dnc my skins💫
+_im always in fnaf area in pt
+_whisper me to int
+dies*
