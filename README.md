@@ -1,6 +1,6 @@
 _my name is amitis
 _im 15 yrs old
--always playing pony towj
+-always playing pony town
 -you can find me in roblox,ponytown,tikto and others
 _you can call me ami or duh
 _im kind to my freinds and play anything w them
